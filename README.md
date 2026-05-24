@@ -1,2 +1,1 @@
-# MONEY-GETTER-5000
-# MONEY-GETTER-5000❌ Uncheck this
+❌ Uncheck this
